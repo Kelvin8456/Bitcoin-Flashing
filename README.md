@@ -1,4 +1,4 @@
-# [BTC Flashing](https://t.me/czarbit)
+1000# [BTC Flashing](https://t.me/czarbit)
 
 # FEATURES
 ✔️ BTC & USDT
